@@ -7,7 +7,7 @@
 
 - 📫 How to reach me **dhruv.aeron3@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/177UApsAePHBZ82gCMDRZxk18cwRu_-bz/view?usp=sharing](https://drive.google.com/file/d/177UApsAePHBZ82gCMDRZxk18cwRu_-bz/view?usp=sharing)
+- 📄 Know about my experiences [https://drive.google.com/file/d/177UApsAePHBZ82gCMDRZxk18cwRu_-bz/view?usp=sharing](https://drive.google.com/file/d/177UApsAePHBZ82gCMDRZxk18cwRu_-bz/view?usp=sharing](https://bit.ly/DhruvAeronApril)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
